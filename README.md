@@ -1,0 +1,1 @@
+# Duvardaki-S-r
